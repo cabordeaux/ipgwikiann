@@ -1,2 +1,2 @@
-# ipgwikiann
+INDEPENDENT PUBLISHERS GROUP ANNIVERSARY WIKI
 IPG Wiki Work Anniversaries
